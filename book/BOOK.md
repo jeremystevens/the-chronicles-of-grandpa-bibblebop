@@ -21,6 +21,7 @@
 | **Episode II** — The Public Bath House Incident | [Read](#episode-ii) |
 | **Episode III** — The Curse of the Chrono-Couch of Eternal Sloth | [Read](#episode-iii) |
 | **Episode IV** — The Flute of Mandatory Tap-Dancing | [Read](#episode-iv) |
+| **Episode V** — The Top Hat of Aggressive Pigeon Summoning | [Read](#episode-v) |
 
 <br>
 
@@ -498,16 +499,202 @@ The Royal Palace Guard's Under-Armor Chainmail Jockstrap became sentient.
 
 <br>
 
+✦ ✦ ✦
+
+</div>
+
+<br>
+
+<div align="center">
+
+# Episode V
+
+## 🎩 The Top Hat of Aggressive Pigeon Summoning
+
+<br>
+
+![Episode V — The Top Hat of Aggressive Pigeon Summoning](/assets/episode5.png)
+
+</div>
+
+<br>
+
+Grandpa Bibblebop had almost finished his morning tea when the Royal Messenger burst through the front door.
+
+"...You're really going to hate this one."
+
+Grandpa slowly set down his cup.
+
+"I was beginning to miss those words."
+
+Professor Bartholomew Vance hurried in carrying another ancient prophecy.
+
+"The kingdom has become... decidedly anserine."
+
+Grandpa sighed.
+
+"That usually means geese."
+
+"Worse."
+
+Professor Vance unrolled the scroll.
+
+"Lord Gluteus, The Yeast Overlord, has begun covering the countryside in enchanted sourdough starter."
+
+Already, entire villages were slowly disappearing beneath rising waves of bubbling bread dough.
+
+"The prophecy says only The Top Hat of Aggressive Pigeon Summoning can stop him."
+
+Grandpa blinked.
+
+"I don't suppose it's nearby."
+
+Professor Vance shook his head.
+
+"It is currently being held at..."
+
+He adjusted his spectacles.
+
+"...the Royal Department of Motor Vehicles."
+
+Grandpa stared at him.
+
+"We have one of those?"
+
+"We do now."
+
+Moments later, the Royal Chrono-Cart deposited them inside a brightly lit waiting room filled with knights holding numbered tickets.
+
+A dragon argued with a clerk over a failed smog inspection.
+
+A peasant attempted to pay his registration fee with two chickens.
+
+A sign on the wall read:
+
+NOW SERVING: B-14
+
+Professor Vance looked down at their ticket.
+
+F-84,317
+
+"...Oh."
+
+Fortunately, Professor Vance remembered the Royal Wizard Discount Window.
+
+Five minutes later, Grandpa emerged wearing The Top Hat of Aggressive Pigeon Summoning.
+
+"It doesn't seem so ba—"
+
+WHOOSH!
+
+Grandpa rocketed into the air...
+
+...followed immediately by forty extremely confused pigeons that materialized inside his clothes.
+
+"WHY ARE THERE PIGEONS IN MY PANTS?!"
+
+Professor Vance consulted the instruction manual.
+
+"Ah."
+
+"What?!"
+
+"It says that's normal."
+
+Lord Gluteus suddenly burst through the bakery section wearing stale pumpernickel armor and wielding The Baguette of Absolute Doom.
+
+"BY THE GLOSS OF MY MOTHER'S LINOLEUM!"
+
+he roared.
+
+The battle had begun.
+
+Grandpa immediately cast Summon Aggressive Jazz Hands.
+
+Everyone within thirty feet dropped what they were holding and launched into perfectly synchronized Broadway jazz hands.
+
+At the same moment, deafening swing music erupted from Grandpa's mouth.
+
+Blinding stage lights blasted from his eyes.
+
+A phantom announcer bellowed,
+
+"AND NOW... A SOLO!"
+
+The Glitter-Back Sloth-Goose landed on Grandpa's shoulders.
+
+"HONK!"
+
+It pointed one wing toward the nearest puddle.
+
+"I'm a little busy!" Grandpa shouted.
+
+The bird honked louder.
+
+In the confusion, Lord Gluteus slipped on a half-empty bottle of generic ranch dressing that nobody remembered bringing.
+
+He crashed face-first into...
+
+...a block of salted butter.
+
+Instantly, the Yeast Overlord burst into joyful sobbing.
+
+He began dancing.
+
+The Baguette of Absolute Doom flew harmlessly across the room.
+
+Professor Vance smiled.
+
+"I suspected that might happen."
+
+Grandpa finally caught his breath.
+
+"I'd really like to meet whoever writes these prophecies."
+
+Professor Vance slowly unfolded another scroll.
+
+Grandpa groaned.
+
+"...Don't."
+
+"I'm afraid I must."
+
+"It says..."
+
+*'Beware the unsolicited tactical advice of the Enchanted Avocado.'*
+
+Grandpa became completely discombobulator-ed.
+
+His left eyebrow quietly migrated toward his chin.
+
+He accidentally lifted his left slipper...
+
+...and took a sip of tea from it.
+
+Just then...
+
+Somewhere deep inside the Royal Castle...
+
+A public toilet brush opened its eyes for the very first time.
+
+"...Oh dear," whispered Grandpa.
+
+<div align="center">
+
+**TO BE CONTINUED...**
+
+<br>
+
 ⚔️ ─────────── ✦ ─────────── ⚔️
 
 <br>
 
-*Thus ends the official Royal Record... for now.
+*Thus ends the official Royal Record... for now.*
 
-Professor Vance assures everyone that no further prophecies currently exist.
+*Professor Vance assures everyone that no further prophecies currently exist.*
 
-Grandpa Bibblebop does not believe him.
+*Grandpa Bibblebop does not believe him.*
 
-History suggests Grandpa is correct.*
+*History suggests Grandpa is correct.*
 
 </div>
