@@ -22,6 +22,7 @@
 | **Episode III** — The Curse of the Chrono-Couch of Eternal Sloth | [Read](#episode-iii) |
 | **Episode IV** — The Flute of Mandatory Tap-Dancing | [Read](#episode-iv) |
 | **Episode V** — The Top Hat of Aggressive Pigeon Summoning | [Read](#episode-v) |
+| **Episode VI** — The Golden Spatula of Aggressive Flipping | [Read](#episode-vi) |
 
 <br>
 
@@ -719,6 +720,199 @@ A public toilet brush opened its eyes for the very first time.
 
 **TO BE CONTINUED...**
 
+<br>
+<br>
+<div align="center">
+
+# Episode VI
+
+## 🍳 The Golden Spatula of Aggressive Flipping
+
+<br>
+
+![Episode VI — The Golden Spatula of Aggressive Flipping](/assets/episode6.png)
+
+</div>
+
+<br>
+
+Grandpa Bibblebop was halfway through buying a fresh loaf of bread from Old Martha at the village market when an enormous crowd came sprinting around the corner.
+
+Leading them...
+
+...was the sentient automatic dental floss dispenser.
+
+It screeched at terrified villagers.
+
+"YOU'RE STILL NOT USING THE PROPER C-SHAPE TECHNIQUE!"
+
+Everyone ran.
+
+Even the town dentist.
+
+Old Martha calmly handed Grandpa his loaf.
+
+"Busy morning."
+
+Grandpa nodded.
+
+"I was afraid of that."
+
+Just then, the Screaming Neon-Chinchilla burst from an alleyway, dropped into a defensive crouch, and emitted the sound of a blaring car alarm directly at a knight who was trying to push a door clearly marked PULL.
+
+The knight quietly turned around.
+
+The screaming stopped.
+
+Professor Vance appeared, carrying three scrolls, two rulers, and what looked suspiciously like a Swedish furniture catalog.
+
+"I've solved the dental floss problem."
+
+Grandpa smiled.
+
+"Wonderful."
+
+"...Unfortunately..."
+
+Professor Vance unrolled another scroll.
+
+*'Beware the uncontrollable spontaneous duplication of the velvet-lined footstool.'*
+
+Grandpa looked at the market.
+
+"...Can it wait until after lunch?"
+
+"It already started."
+
+Somewhere inside the newly discovered Royal IKEA Showroom...
+
+A single velvet footstool quietly became two.
+
+Then four.
+
+Then eight.
+
+Grandpa sighed.
+
+"I was hoping you'd say dragon."
+
+Professor Vance pointed toward a glowing display pedestal.
+
+"The prophecy says only The Golden Spatula of Aggressive Flipping can stop it."
+
+Moments later they reached the showroom.
+
+A bewildered knight was still trying to assemble a bookshelf using a fish.
+
+Admiral Toe-Jam, The Woolen Menace, stood triumphantly atop a display kitchen.
+
+"My glorious sock empire begins TODAY!"
+
+Grandpa grabbed the Golden Spatula.
+
+A magical blast flew toward him.
+
+SHLIP!
+
+The spell flipped harmlessly back.
+
+Grandpa instinctively shouted,
+
+"ORDER UP!"
+
+Instantly...
+
+His boots filled with hot waffle batter.
+
+"...I don't care for this side effect."
+
+Meanwhile, the Carbonated Blue-Cheese Cotton Candy rolled off a display shelf...
+
+...and landed directly on a velvet footstool.
+
+Professor Vance slowly closed his eyes.
+
+"...Oh dear."
+
+The showroom exploded into comfortable seating.
+
+Footstools appeared every three seconds.
+
+Living rooms became impossible to leave.
+
+One peasant disappeared beneath an aggressively upholstered recliner.
+
+In the chaos, Admiral Toe-Jam cast the Curse of the Hyper-Specific Subtitle.
+
+A glowing subtitle instantly appeared beneath his own chin.
+
+*I still sleep with my favorite baby sock.*
+
+He gasped.
+
+"...That information was classified."
+
+CLACK. CLACK. CLACK. DING!
+
+His own subtitle box swung around...
+
+...and smacked him squarely in the jaw.
+
+Grandpa couldn't help smiling.
+
+Then he became completely bamboosel-ated.
+
+His suspenders snapped.
+
+His spectacles spun around his head.
+
+His left slipper launched into a nearby ottoman.
+
+Convinced the kingdom was sinking beneath an endless velvet ocean...
+
+He climbed onto a flat-pack IKEA desk chair.
+
+"KEEP YOUR HEADS DOWN, MEN! I'LL ROW US TO THE SAFETY OF THE LINEN DEPARTMENT!"
+
+Professor Vance watched thoughtfully.
+
+"...The chair has wheels."
+
+Fortunately...
+
+Someone tossed a generic dryer sheet.
+
+Admiral Toe-Jam's mighty sock armor collapsed into a fluffy heap.
+
+The footstools stopped multiplying.
+
+Silence returned.
+
+Grandpa finally arrived home just before sunset.
+
+He sat down.
+
+Poured a fresh cup of tea.
+
+Smiled.
+
+Then there was a knock at the door.
+
+"...Come in."
+
+Grand Paladin-Protector Sir Percival the Moderately Symmetrical stepped inside carrying a very serious expression...
+
+...and a single fallen soup spoon.
+
+"I'm terribly sorry to disturb you..."
+
+"...but the knighting ceremony has been delayed."
+
+Grandpa slowly closed his eyes.
+
+<div align="center">
+
+**TO BE CONTINUED...**
 <br>
 
 ⚔️ ─────────── ✦ ─────────── ⚔️
