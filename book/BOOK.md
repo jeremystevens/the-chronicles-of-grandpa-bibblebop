@@ -32,7 +32,15 @@
 
 # Foreword
 
-*(Coming Soon)*
+For centuries, the Royal Historians insisted these events never happened.
+
+Unfortunately for them, Professor Bartholomew Vance kept remarkably detailed notes.
+
+What follows is the complete and official record of the adventures of Grandpa Bibblebop—hero, reluctant legend, and a man who has spent an astonishing amount of his retirement simply trying to finish one peaceful cup of tea.
+
+The Royal Archives accept no responsibility for dragons suffering emotional crises, magical household objects, time travel, Broadway-style tap dancing, or any prophecies discovered after the publication of this volume.
+
+Should another catastrophe occur... this record will be updated accordingly.
 
 <br>
 
