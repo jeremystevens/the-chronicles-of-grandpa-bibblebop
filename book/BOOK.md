@@ -52,7 +52,7 @@
 
 <br>
 
-![Episode I — The Dragon of Bumblebutt Junction](assets/episode1.png)
+![Episode I — The Dragon of Bumblebutt Junction](/assets/episode1.png)
 
 </div>
 
@@ -120,7 +120,7 @@ The Royal Messenger slowly opened the front door.
 
 <br>
 
-![Episode II — The Public Bath House Incident](assets/episode2.png)
+![Episode II — The Public Bath House Incident](/assets/episode2.png)
 
 </div>
 
@@ -230,7 +230,7 @@ Grandpa closed his eyes.
 
 <br>
 
-![Episode III — The Curse of the Chrono-Couch of Eternal Sloth](assets/episode3.png)
+![Episode III — The Curse of the Chrono-Couch of Eternal Sloth](/assets/episode3.png)
 
 </div>
 
@@ -328,7 +328,7 @@ Grandpa sighed.
 
 <br>
 
-![Episode IV — The Flute of Mandatory Tap-Dancing](assets/episode4.png)
+![Episode IV — The Flute of Mandatory Tap-Dancing](/assets/episode4.png)
 
 </div>
 
