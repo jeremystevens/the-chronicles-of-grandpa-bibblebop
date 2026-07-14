@@ -25,6 +25,14 @@
 
 ![The Chronicles of Grandpa Bibblebop](assets/demo.png)
 
+<br>
+
+# 📖 [**READ THE BOOK**](book/book.md) 📖
+
+[![Read the Chronicles](https://img.shields.io/badge/⚔️%20BEGIN%20THE%20CHRONICLES%20⚔️-Read%20Every%20Episode%20Now-8b5cf6?style=for-the-badge)](book/book.md)
+
+*The adventures are already underway. Grandpa's tea is already getting cold.*
+
 </div>
 
 ---
@@ -150,6 +158,6 @@ That single law defines the tone, the humor, and the soul of this entire univers
 
 *The Royal Historian thanks you for your visit, and reminds you that all events depicted herein are canonical, binding, and — regrettably — permanent.*
 
-**⭐ Star this repo to be recorded favorably in the kingdom's annals. ⭐**
+**📖 [Read the Chronicles](book/book.md) · ⭐ Star this repo to be recorded favorably in the kingdom's annals. ⭐**
 
 </div>
