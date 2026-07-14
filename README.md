@@ -15,6 +15,16 @@
 >
 > — **The Royal Historian**, Volume XIV
 
+<br>
+
+> ⚠️ **A Notice from the Royal Archives** ⚠️
+>
+> *These chronicles may contain crude, juvenile, and otherwise inappropriate humor. The Archives apologize for nothing — history is recorded as it occurred, and the kingdom's history is, regrettably, what it is. Reader discretion is advised.*
+
+<br>
+
+![The Chronicles of Grandpa Bibblebop](assets/demo.png)
+
 </div>
 
 ---
