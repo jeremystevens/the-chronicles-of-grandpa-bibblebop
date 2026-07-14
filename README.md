@@ -27,7 +27,7 @@
 
 <br>
 
-# 📖 [**READ THE BOOK**](book/book.md) 📖
+# 📖 [**READ THE BOOK**](/book/book.md) 📖
 
 [![Read the Chronicles](https://img.shields.io/badge/⚔️%20BEGIN%20THE%20CHRONICLES%20⚔️-Read%20Every%20Episode%20Now-8b5cf6?style=for-the-badge)](book/book.md)
 
