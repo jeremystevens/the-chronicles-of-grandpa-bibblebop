@@ -16,7 +16,7 @@
 
 | | |
 |:---|:---:|
-| **Foreword** | *(Coming Soon)* |
+| **Foreword** | [Read](#Foreword) |
 | **Episode I** — The Dragon of Bumblebutt Junction | [Read](#episode-i) |
 | **Episode II** — The Public Bath House Incident | [Read](#episode-ii) |
 | **Episode III** — The Curse of the Chrono-Couch of Eternal Sloth | [Read](#episode-iii) |
@@ -135,7 +135,23 @@ The Royal Messenger slowly opened the front door.
 
 <br>
 
-Following the dragon's surprisingly emotional departure, Grandpa Bibblebop had barely enough time to pour himself another cup of tea before the Royal Messenger dragged him back to the castle.
+Following the dragon's surprisingly emotional departure, the villagers agreed the beast simply needed "time to work on itself."
+
+Grandpa Bibblebop finally reached for his tea.
+
+KNOCK. KNOCK. KNOCK.
+
+"...Come in," he sighed.
+
+The Royal Messenger stepped inside.
+
+"Good news. The dragon has started a self-esteem support group."
+
+"Wonderful."
+
+"Bad news... there's been another incident."
+
+Grandpa hadn't even finished his first cup before the Royal Messenger dragged him back to the castle.
 
 "There has been... another incident," the messenger explained.
 
@@ -245,6 +261,18 @@ Grandpa closed his eyes.
 
 <br>
 
+Fortunately, Professor Vance discovered that the dreaded spell "Polymorph: Aggressive Goose" had only been a mistranslation.
+
+"It actually says 'Aggressively Shoo Goose.'"
+
+Grandpa blinked.
+
+"So... we're safe?"
+
+"For now."
+
+Unfortunately, Professor Vance immediately opened another prophecy.
+
 Grandpa Bibblebop reluctantly followed Professor Bartholomew Vance to the Royal Library, where an ancient scroll described The Prophecy of the Flatulent Eclipse.
 
 According to the prophecy, only the legendary Chrono-Couch of Eternal Sloth could prevent the kingdom from falling into complete and utter laziness.
@@ -343,7 +371,11 @@ Grandpa sighed.
 
 <br>
 
-Grandpa Bibblebop had just poured himself another cup of tea when the Royal Messenger burst through the front door.
+The Great Lord of the Printer Jam was eventually defeated after becoming hopelessly jammed inside his own paperwork.
+
+Grandpa celebrated by pouring another cup of tea.
+
+The Royal Messenger burst through the front door.
 
 "...You're really going to hate this one."
 
@@ -519,7 +551,11 @@ The Royal Palace Guard's Under-Armor Chainmail Jockstrap became sentient.
 
 <br>
 
-Grandpa Bibblebop had almost finished his morning tea when the Royal Messenger burst through the front door.
+The Royal Palace Guard's sentient chainmail jockstrap was safely locked inside an enchanted wardrobe until the Royal Laundry could determine what to do with it.
+
+Grandpa decided that was someone else's problem.
+
+He had almost finished his morning tea when the Royal Messenger burst through the front door.
 
 "...You're really going to hate this one."
 
