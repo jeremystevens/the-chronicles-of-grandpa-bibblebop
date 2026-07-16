@@ -23,6 +23,7 @@
 | **Episode IV** — The Flute of Mandatory Tap-Dancing | [Read](#episode-iv) |
 | **Episode V** — The Top Hat of Aggressive Pigeon Summoning | [Read](#episode-v) |
 | **Episode VI** — The Golden Spatula of Aggressive Flipping | [Read](#episode-vi) |
+| **Episode VII** — The Crown of Eternal Radiance | [Read](#episode-vii) |
 
 <br>
 
@@ -721,7 +722,13 @@ A public toilet brush opened its eyes for the very first time.
 **TO BE CONTINUED...**
 
 <br>
+
+✦ ✦ ✦
+
+</div>
+
 <br>
+
 <div align="center">
 
 # Episode VI
@@ -913,7 +920,252 @@ Grandpa slowly closed his eyes.
 <div align="center">
 
 **TO BE CONTINUED...**
+
 <br>
+
+✦ ✦ ✦
+
+</div>
+
+<br>
+
+<div align="center">
+
+# Episode VII
+
+## 👑 The Crown of Eternal Radiance
+
+<br>
+
+![Episode VII — The Crown of Eternal Radiance](/assets/episode7.png)
+
+</div>
+
+<br>
+
+The morning sun had only just begun to creep over the crooked rooftops of Bibblebop Hollow when a tremendous blast from three ceremonial trumpets shattered the peaceful silence outside Grandpa Bibblebop's cottage.
+
+Grandpa looked up from his breakfast.
+
+"...That's usually not a good sign."
+
+A second trumpet sounded.
+
+Then a third.
+
+Then, for reasons nobody could adequately explain, a fourth trumpet played a noticeably different tune entirely before stopping halfway through what sounded suspiciously like a drinking song.
+
+Grandpa sighed.
+
+"They've brought the brass section."
+
+Outside, dozens of armored knights marched into his tiny front garden with magnificent precision, their polished banners snapping proudly in the morning breeze.
+
+Behind them rode Grand Paladin-Protector Sir Percival the Moderately Symmetrical, Undefeated Champion of the Realm of the Dropped Metal Spoon, mounted atop an exceptionally dignified white horse wearing tiny ceremonial slippers.
+
+A royal herald stepped forward and unfurled a scroll so long it rolled halfway down the garden path before bumping into Grandpa's mailbox.
+
+He cleared his throat.
+
+Then cleared it again.
+
+Then consulted a much smaller scroll explaining how to properly clear one's throat during official ceremonies.
+
+Finally, he announced:
+
+"Hear ye! Hear ye! By decree of His Most Reasonably Acceptable Majesty, the Royal Court of Culinary Utensil Nobility has convened to perform the Sacred Elevation of One Fallen Spoon!"
+
+Neighbors immediately emerged from their cottages carrying folding chairs.
+
+Old Martha brought sandwiches.
+
+Someone began selling roasted chestnuts.
+
+A child wandered through the gathering shouting,
+
+"Five copper says the spoon cries this time!"
+
+Grandpa quietly rubbed his forehead.
+
+"...I only dropped it."
+
+Sir Percival dismounted with immense dignity.
+
+Behind him, four attendants carefully carried the pewter soup spoon upon an oversized crimson velvet cushion as though transporting the Crown Jewels themselves.
+
+The spoon had also been fitted with an extremely tiny ceremonial cape.
+
+Grandpa blinked.
+
+"I don't remember it wearing that."
+
+"The cape is traditional," Sir Percival replied solemnly.
+
+"Of course it is."
+
+Another knight stepped forward carrying a silver bucket.
+
+He dramatically sprinkled holy broth over the spoon.
+
+A choir hidden somewhere behind Grandpa's woodshed began singing an emotional hymn entitled Ode to Moderately Serviceable Cutlery.
+
+Grandpa looked toward the woodshed.
+
+"...Were they in there all night?"
+
+No one answered.
+
+Sir Percival drew his magnificent sword.
+
+"My loyal subjects!"
+
+The crowd cheered.
+
+"We gather today to honor this brave utensil..."
+
+He raised the spoon toward the heavens.
+
+"...which, despite suffering a tragic encounter with gravity..."
+
+The crowd collectively removed their hats.
+
+"...continued serving soup with unwavering dignity!"
+
+Several spectators openly wept.
+
+One elderly woman blew her nose into a tablecloth.
+
+Grandpa quietly muttered,
+
+"It was under the stove for about six minutes."
+
+Sir Percival ignored him.
+
+"Kneel, valiant spoon."
+
+Two attendants gently tipped the cushion forward.
+
+The spoon slid onto a tiny embroidered pillow.
+
+Sir Percival touched each side with his sword.
+
+"I hereby knight thee..."
+
+A dramatic pause followed.
+
+Long enough for another trumpet flourish.
+
+"...Sir Ladleworth of Brothshire, Guardian of Chowder, Defender of Bisque, and Keeper of Mildly Warm Stew!"
+
+The choir reached a glorious crescendo.
+
+Confetti exploded from somewhere overhead.
+
+Grandpa glanced upward.
+
+"...Who keeps installing confetti cannons?"
+
+The spoon was carefully lifted once more.
+
+A royal seal was stamped onto an official parchment certifying its noble status.
+
+Sir Percival handed Grandpa an identical copy.
+
+"You are now legally obligated to address the utensil by its full title."
+
+Grandpa looked at the document.
+
+It was six pages long.
+
+"I think I'll just avoid talking to it."
+
+Sir Percival nodded respectfully.
+
+"A wise compromise."
+
+The Grand Paladin climbed back onto his horse.
+
+"Oh... one final matter."
+
+Grandpa had learned to fear those words.
+
+"Yes?"
+
+Sir Percival leaned forward.
+
+"A properly knighted spoon..."
+
+His voice dropped to a near whisper.
+
+"...must never..."
+
+He looked around dramatically.
+
+"...be used for pudding."
+
+The crowd gasped.
+
+A child fainted.
+
+Grandpa blinked twice.
+
+"I wasn't planning on it."
+
+"Excellent."
+
+Sir Percival saluted.
+
+The knights turned in perfect formation.
+
+The trumpets blared once more.
+
+Within moments the entire procession disappeared down the village road, leaving only a few boot prints, scattered confetti, and one thoroughly exhausted choir director emerging from behind the woodshed.
+
+Silence returned.
+
+Grandpa stood alone in his garden.
+
+He looked at the knighted spoon resting proudly on his kitchen table.
+
+Then at the official certificate.
+
+Then back at the spoon.
+
+"...Well..."
+
+He carefully placed it in the cutlery drawer.
+
+"...Try not to let it go to your head."
+
+The spoon, to its credit, remained remarkably humble.
+
+Grandpa reached for his coat and favorite walking stick.
+
+There was only one thing he wanted today.
+
+One wonderfully ordinary thing.
+
+A peaceful stroll into town...
+
+And a hot cup of tea.
+
+He smiled to himself.
+
+"What could possibly get in the way of that?"
+
+<div align="center">
+
+**TO BE CONTINUED...**
+
+<br>
+
+✦ ✦ ✦
+
+</div>
+
+<br>
+
+<div align="center">
 
 ⚔️ ─────────── ✦ ─────────── ⚔️
 
